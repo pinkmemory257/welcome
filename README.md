@@ -1,2 +1,3 @@
 # welcome
-Hi
+Hi Have a nice day!
+
