@@ -1,3 +1,2 @@
-# welcome
-Hi Have a nice day!
+0305# (https://cdn.jsdelivr.net/gh/pinkmemory257 /welcome /wind/Hi.7z )
 
